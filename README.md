@@ -1,3 +1,5 @@
-hello world!
+NEVER GIVE UP!
 
-This is our first change yeah baby.
+first of all you need to get rid of bad habits
+
+and then ... 
