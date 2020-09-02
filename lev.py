@@ -1,2 +1,1 @@
-almaz-pidaraz
 
