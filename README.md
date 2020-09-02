@@ -1,2 +1,1 @@
-shut up
-LOVE ASS
+
